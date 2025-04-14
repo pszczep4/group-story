@@ -1,2 +1,2 @@
 Once upon a time, an alien and a cowboy met in a coffee shop...
-They began arguing over who had the better spaceship.
+They started discussing alien fashion instead.
